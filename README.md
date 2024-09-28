@@ -1,7 +1,7 @@
 - 👋 Hi, I’m the one who bothers me
-- 👀 i care about you my girl 
+- 👀 you will be surprised to know who it is 
 - 💞️ I care what you are doing now, honey
-- 📫 there are a few things i want to tell you
+- 📫 there are a few things i want to tell honey
 - 💌 I love you, my stubborn girl♥️, it's hard to say that I really want to hold the baby right now
 - 
 
